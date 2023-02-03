@@ -9,4 +9,4 @@ also, 100000000% unlock rate, VERY OP
 
 
 
-<img src="https://media.discordapp.net/attachments/997150957542588499/1071114854385078352/215617326-737ad200-1161-4976-85af-83ca57cc9544.png?width=854&amp;height=429" alt="Image"/>![image](https://user-images.githubusercontent.com/80789840/216664282-d04c562c-bc63-4d53-84ad-68e3f7003261.png)
+![image](https://user-images.githubusercontent.com/80789840/216664426-243e5b41-a9ea-4e31-a147-5f18071ba175.png)
